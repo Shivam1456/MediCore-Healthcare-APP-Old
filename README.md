@@ -1,1 +1,0 @@
-# MediCore-Healthcare-APP
